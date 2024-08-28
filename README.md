@@ -1,7 +1,7 @@
 👋 Oi, eu sou @luananunesmarques
 👀 Estou interessado em aprender 
 🌱 Atualmente estou aprendendo a progrmar alura 
-💞️ Estou procurando colaborar meu desenpenho
+💞️ Estou procurando colaborar meu desepenho.
 📫 Como chegar até mim entre em contato 
 
 
